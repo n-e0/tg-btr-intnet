@@ -1,3 +1,3 @@
 # tg-btr-intnet
 
-john is stupid -  duncan
+john is stupid -  ali
